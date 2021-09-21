@@ -1,0 +1,1 @@
+nwm ucze sie kodowac
